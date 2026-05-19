@@ -1,4 +1,4 @@
-# 
+# rare GIMP for PC addons is the best GIMP for PC addons with text-on-path and vector-effects. Safe, reliable, and optimized for maximum performance.
 
 
 
